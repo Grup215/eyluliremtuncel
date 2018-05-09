@@ -1,0 +1,1 @@
+coklu ortam tasarimi
